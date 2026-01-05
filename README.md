@@ -120,7 +120,7 @@ all links are here mentioned
 <br>
 
 ### Adding emoji
-❤️ 😂
+❤️ 😂 😂 😂 😂
 
 <br>
 
